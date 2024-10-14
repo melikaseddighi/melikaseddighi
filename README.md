@@ -1,5 +1,5 @@
 # 💫 About Me:
-I'm currently studying CSE in shiraz university
+I'm currently studying CSE at shiraz university
 
 
 ## 🌐 Socials:
